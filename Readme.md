@@ -47,7 +47,7 @@ Contributions are welcome! If you would like to contribute to the project, pleas
 
 ## Contact
 
-For inquiries or suggestions, please contact me at [fardeenz619@gmail.com ].
+For inquiries or suggestions, please contact me at [lanmugi88@gmail.com ].
 
 ---
 
